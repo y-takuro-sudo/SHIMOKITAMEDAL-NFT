@@ -1,1 +1,1 @@
-# SHIMOKITAMEDAL-NFT
+# shimokitazawa-nft
